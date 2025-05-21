@@ -9,16 +9,22 @@
 
 | 🌐 WorldWide and RU mirrors                                                       
 
-| [🔗 stake1038.com](https://stake1038.com/?c=boonooss)  - Актуальный
-| [🔗 stake1019.com](https://stake1038.com/?c=boonooss)                                             
-| [🔗 stake1020.com](https://stake1038.com/?c=boonooss)                                             
-| [🔗 stake1021.com](https://stake1038.com/?c=boonooss)                                            
-| [🔗 stake1022.com](https://stake1038.com/?c=boonooss) |                                               
-| [🔗 stake.krd](https://stake1038.com/?c=boonooss) |                                               
-| [🔗 stake.mba](https://stake1038.com/?c=boonooss) |                                               
-| [🔗 stake.ceo](https://stake1038.com/?c=boonooss) |                                               
-| [🔗 stake.bz](https://stake1038.com/?c=boonooss)   |                                               
-| [🔗 staketr.com](https://stake1038.com/?c=boonooss) |                                               
-| [🔗 stake.jp](https://stake1038.com/?c=boonooss)   |                                               
-| [🔗 stake.com](https://stake1038.com/?c=boonooss) | 
-| [🔗 stake1038.com](https://stake1038.com/?c=boonooss) |
+| 🌍 **WW Mirrors (Worldwide)**                  | 🇷🇺 **RU Mirrors (Russia-specific)**          |
+|-----------------------------------------------|-----------------------------------------------|
+| [🔗 stake.bet](https://stake1038.com/?c=boonooss)  | [🔗 stake1017.com](https://stake1038.com/?c=boonooss) |
+| [🔗 stake.ac](https://stake1038.com/?c=boonooss)    | [🔗 stake1018.com](https://stake1038.com/?c=boonooss) |
+| [🔗 stake.games](https://stake1038.com/?c=boonooss) | [🔗 stake1019.com](https://stake1038.com/?c=boonooss) |
+| [🔗 stake.pet](https://stake1038.com/?c=boonooss)  | [🔗 stake1020.com](https://stake1038.com/?c=boonooss) |
+| [🔗 stake1017.com](https://stake1038.com/?c=boonooss) | [🔗 stake1021.com](https://stake1038.com/?c=boonooss) |
+| [🔗 stake1018.com](https://stake1038.com/?c=boonooss) | [🔗 stake1022.com](https://stake1038.com/?c=boonooss) |
+| [🔗 stake1019.com](https://stake1038.com/?c=boonooss) |                                               |
+| [🔗 stake1020.com](https://stake1038.com/?c=boonooss) |                                               |
+| [🔗 stake1021.com](https://stake1038.com/?c=boonooss) |                                               |
+| [🔗 stake1022.com](https://stake1038.com/?c=boonooss) |                                               |
+| [🔗 stake.krd](https://stake1038.com/?c=boonooss)  |                                               |
+| [🔗 stake.mba](https://stake1038.com/?c=boonooss)  |                                               |
+| [🔗 stake.ceo](https://stake1038.com/?c=boonooss)  |                                               |
+| [🔗 stake.bz](https://stake1038.com/?c=boonooss)    |                                               |
+| [🔗 staketr.com](https://stake1038.com/?c=boonooss) |                                             |
+| [🔗 stake.jp](https://stake1038.com/?c=boonooss)    |                                               |
+| [🔗 stake.com](https://stake1038.com/?c=boonooss)  |                                               |
