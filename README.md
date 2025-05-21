@@ -11,7 +11,7 @@
 
 | 🌍 **WW Mirrors (Worldwide)**                  | 🇷🇺 **RU Mirrors (Russia-specific)**          |
 |-----------------------------------------------|-----------------------------------------------|
-| [🔗 stake1038.com](https://stake1038.com/?c=boonooss) - Акутальный | [🔗 stake1038.com](https://stake1038.com/?c=boonooss) | АКУТАЛЬНЫЙ
+| [🔗 stake1038.com](https://stake1038.com/?c=boonooss) - **LIVE** | [🔗 stake1038.com](https://stake1038.com/?c=boonooss) - Актуальный на **Сегодня**| 
 | [🔗 stake.ac](https://stake1038.com/?c=boonooss)    | [🔗 stake1018.com](https://stake1038.com/?c=boonooss) |
 | [🔗 stake.games](https://stake1038.com/?c=boonooss) | [🔗 stake1019.com](https://stake1038.com/?c=boonooss) |
 | [🔗 stake.pet](https://stake1038.com/?c=boonooss)  | [🔗 stake1020.com](https://stake1038.com/?c=boonooss) |
