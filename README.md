@@ -9,10 +9,10 @@
 
 | 🌐 WorldWide and RU mirrors                                                       
 
-| [🔗 stake1038.com](https://stake1038.com/?c=boonooss)  - Актуальный |
-| [🔗 stake1019.com](https://stake1038.com/?c=boonooss) |                                               
-| [🔗 stake1020.com](https://stake1038.com/?c=boonooss) |                                               
-| [🔗 stake1021.com](https://stake1038.com/?c=boonooss) |                                               
+| [🔗 stake1038.com](https://stake1038.com/?c=boonooss)  - Актуальный
+| [🔗 stake1019.com](https://stake1038.com/?c=boonooss)                                             
+| [🔗 stake1020.com](https://stake1038.com/?c=boonooss)                                             
+| [🔗 stake1021.com](https://stake1038.com/?c=boonooss)                                            
 | [🔗 stake1022.com](https://stake1038.com/?c=boonooss) |                                               
 | [🔗 stake.krd](https://stake1038.com/?c=boonooss) |                                               
 | [🔗 stake.mba](https://stake1038.com/?c=boonooss) |                                               
