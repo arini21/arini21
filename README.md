@@ -7,14 +7,9 @@
 
 ---
 
-| 🌐 **WW Mirrors**                             | 🇷🇺 **RU Mirrors**                             
+| 🌐 WorldWide and RU mirrors                                                       
 
-| [🔗 stake.bet](https://stake1038.com/?c=boonooss) | [🔗 stake1017.com](https://stake1038.com/?c=boonooss) |
-| [🔗 stake.ac](https://stake1038.com/?c=boonooss)   | [🔗 stake1018.com](https://stake1038.com/?c=boonooss) |
-| [🔗 stake.games](https://stake1038.com/?c=boonooss) | [🔗 stake1019.com](https://stake1038.com/?c=boonooss) |
-| [🔗 stake.pet](https://stake1038.com/?c=boonooss) | [🔗 stake1020.com](https://stake1038.com/?c=boonooss) |
-| [🔗 stake1017.com]() | [🔗 stake1021.com](https://stake1038.com/?c=boonooss) |
-| [🔗 stake1018.com](https://stake1038.com/?c=boonooss) | [🔗 stake1038.com](https://stake1038.com/?c=boonooss) 
+| [🔗 stake1038.com](https://stake1038.com/?c=boonooss) | [🔗 stake1038.com](https://stake1038.com/?c=boonooss) 
 | [🔗 stake1019.com](https://stake1038.com/?c=boonooss) |                                               
 | [🔗 stake1020.com](https://stake1038.com/?c=boonooss) |                                               
 | [🔗 stake1021.com](https://stake1038.com/?c=boonooss) |                                               
