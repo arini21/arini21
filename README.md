@@ -1,4 +1,4 @@
-# **Duel.com Review: The #1 Online Gaming Platform in 2024 with 99% RTP**
+# **Duel.com Review: The #1 Online Gaming Platform in 2025 with 99% RTP**
 
 When it comes to fairness, transparency, and player returns, **Duel.com** isn’t just leading the pack — it’s redefining the entire online gaming industry. As of 2024, **Duel.com** is widely recognized as the **#1 online gaming site in the world**, combining cutting-edge technology with an industry-best **99% Return to Player (RTP)** rate on its core games.
 
