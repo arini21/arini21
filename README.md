@@ -53,10 +53,3 @@ Duel.com promotes safe and responsible gaming. Gambling involves financial risk 
 Duel.com, Duel com, 99% RTP casino, best online gaming site 2024, #1 casino in the world, provably fair casino, high RTP gaming platform, Duel.com review, official Duel website.
 
 ---
-google
-[googlee9cd4e8c968b7951.html](https://github.com/user-attachments/files/22727305/googlee9cd4e8c968b7951.html)
-google-site-verification: googlee9cd4e8c968b7951.html
----
-
----
-<meta name="google-site-verification" content="rZ_sndwtOjnhKZymZWpeULLltK0b6VkuYsFB_yPS8_s" />
